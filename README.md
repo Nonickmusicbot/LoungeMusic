@@ -5,7 +5,7 @@
 ### Destek kanalı [@Loungemusicsupport](https://t.me/loungemusicsupport)
 
 <p align="center">
-  <img src="https://telegra.ph/file/03f1c9ec4513c3a52bc22.jpg">
+  <https://i.ibb.co/Vp8TtX1/Logopit-1663987970479.png">
 </p>
 
 <h2> Özellikler 🔥 </h2>
