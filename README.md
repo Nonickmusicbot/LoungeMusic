@@ -1,4 +1,4 @@
-<h1 align="centre">LoungeMUSIC V1.0 🎵</h1>
+<h1 align="centre">BallasMUSIC V1.0 🎵</h1>
 
 ### Telegram gruplarınızda müzik dinlemenize yarar 
 #### POWERED BY [BOT_RAMO](https://t.me/BOT_RAMO)
